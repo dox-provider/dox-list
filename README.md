@@ -1,2 +1,3 @@
 # LIST OF DOXES
-### [Meowbahh](https://github.com/dox-provider/dox-list/blob/main/doxes/midbahh.md)
+### [Meowbahh // Midbahh](https://github.com/dox-provider/dox-list/blob/main/doxes/midbahh.md)
+### [Naya // owTreyalP](https://github.com/dox-provider/dox-list/blob/main/doxes/Naya%20(OWTREYALP).md)
