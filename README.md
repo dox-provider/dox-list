@@ -1,2 +1,2 @@
 # LIST OF DOXES
-### [MEOWBAHH](https://github.com/dox-provider/meowbahh.md)
+### [Meowbahh](https://github.com/dox-provider/dox-list/blob/main/meowbahh.md)
