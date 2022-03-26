@@ -57,4 +57,4 @@
   * [Family Video](https://anonfiles.com/daP7JbO1u7/video_family_mp4)
   * [Rachel Hughes (Girlfriend)](https://gyazo.com/62ecb00a0a6acc024cbb3de47e5993ef)
 ---
-CREDIT TO [Wrench] FOR THE DOX (he did not leave any links)
+# CREDIT TO ██████ FOR THE DOX
